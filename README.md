@@ -10,7 +10,7 @@ One main things that made the previous roblox game so iconic was their simplicit
 ### What has Roblox Come to?
 However Roblox in its current state has been plagued by a multitude of issues, ones that are simply an oversaturation of a new type of unfun and sloppily created games mixed with issues that literally turned Roblox into a messy court lawsuit.
 <br>
- ##### The Rise of Simulators:
+##### The Rise of Simulators:
 "Simulators" are a new type of roblox game that has sprouted, grown and spread like a weed throughout these past few years.  Simulators are the epitome of the overstimulation from videogames and media that adults complain about.  To make progress, you get money or some other sort of value gain by clicking your screen, requiring immense amounts of grinding to try and continue to grow exponentially.  Most of these games have things like "pets" that you unironically gamble for, whether its with real money you convert into robux or the in game currency that the children spend hours every day grinding for.  In most of these, there is no well-developed combat system, and it becomes a game of whoever wasted more of their life clicking their screen.
 ![Screenshot 2022-10-03 6 53 52 PM](https://user-images.githubusercontent.com/114502945/193717731-13ba15d4-5e8d-49c5-894a-03166efd769e.png)
 <br>
